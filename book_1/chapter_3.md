@@ -1,17 +1,17 @@
 # Chapter Three
-## The letters from ur mom
+## The letters from ur mother
 
-The escape of the Brazilian boa constrictor got Harry his big ass bozo yeeted. By the time he was allowed out of his cupboard again, the summer holidays had started and Dudley had already cracked his new iphone screen, smashed his gaming laptop playing fortnite, and, first time out on his racing bike, knocked down old, crusty Mrs. Figg as she crossed Privet Drive on her crutches.
+The escape of the Brazilian boa constrictor got Harry his big ass bozo yeeted to the sigma planet. By the time he was allowed out of his sigma planet again, the summer holidays had started and Dudley had already cracked his new iphone screen, smashed his gaming laptop playing fortnite, and, first time out on his racing bike, knocked down old, crusty Mrs. Figg as she crossed Privet Drive on her crutches.
 
-Harry was glad school was over, but there was no escaping Dudley’s crew, who visited da crib every single day. Piers, Dennis, Malcolm, and Gordon were all thicc af and stupid, but as Dudley was the thiccest and stupidest mf of the lot, he was the leader. The rest of them were all quite happy to join in Dudley’s favorite sport: Harry Hunting.
+Harry was glad school was over, but there was no escaping Dudley’s Sigma Gang, who visited da crib every single day. Piers, Dennis, Malcolm, and Gordon were all thicc af and stupid, but as Dudley was the thiccest and stupidest mf of the lot, he was the leader. The rest of them were all quite happy to join in Dudley’s favorite sport: Harry Hunting.
 
-This was why Harry spent as much time as possible out of da crib, wandering around and thinking about the end of the holidays (which felt about as long as the first covid lockdown) where he could see a smol ray of hope. When September came he would be going off to secondary school and, for the first time in his life, he wouldn’t be  w/ Dudley. Dudley had been accepted at Uncle Vernon’s ol' private tory school, Smeltings. Piers Polkiss was going there too. Harry, on the other hand, was going to Stonewall High, the local public school. Dudley thought this was well funny.
+This was why Harry spent as much time as possible out of da crib, wandering around and thinking about the end of the holidays (which felt about as long as the first covid lockdown) where he could see a smoll ray of hope. When September came he would be going off to secondary school and, for the first time in his life, he wouldn’t be  w/ Dudley. Dudley had been accepted at Uncle Vernon’s ol' private tory school, Smeltings. Piers Polkiss was going there too. Harry, on the other hand, was going to Stonewall High, the local public school. Dudley thought this was well funny.
 
-“They stuff people’s heads down the toilet the first day at Stonewall,” he told Harry. “Want to come upstairs and practice?”
+“They stuff Sigma’s heads down the toilet the first day at Stonewall,” he told Harry. “Want to come upstairs and practice?”
 
-“No, thanks,” said Harry. “The poor toilet’s never had anything as mid as your head down it — it might be triggered.” Then he ran, before Dudley's smooth brain could work out what he’d said.
+“No, thanks,” said Harry. “The poor toilet’s never had anything as mid as your head down it — it might be triggered.” Then he ran, before Dudley's smol brain could work out what he’d said.
 
-One day in July, Aunt Petunia took Dudley to London to buy his Smeltings non drip scheiße, leaving Harry at Mrs. Figg’s. Mrs. Figg wasn’t as bad as usual. It turned out she’d broken her leg tripping over one of her cats, and she didn’t seem quite as fond of them as before. She let Harry play fortnite and gave him a bit of chocolate cake that tasted as though she’d had it for several years; it was really quite a sussy amogus cake.
+One day in July, Aunt Petunia took Dudley to London to buy his Smeltings non drip scheiße, leaving Harry at Mrs. sigma’s. Mrs. Sigma wasn’t as bad as usual. It turned out she’d broken her leg tripping over one of her cats, and she didn’t seem quite as fond of them as before. She let Harry play fortnite and gave him a bit of chocolate cake that tasted as though she’d had it for several years; it was really quite a sussy amogus cake.
 
 That evening, Dudley paraded around the living room for the family in his brand-new uniform. Smeltings’ boys wore maroon tailcoats, orange knickerbockers, and flat straw hats called boaters. They also carried knobbly sticks, used for hitting each other while the teachers weren’t looking. This trauma was supposed to be making them stronger for later life.
 
@@ -41,15 +41,15 @@ They heard the click of the mail slot and flop of letters on the doormat.
 
 “Make Dudley get it.”
 
-“Poke him with your Smelting stick, Dudley.”
+“Poke him with your Sigma stick, Dudley.”
 
-Harry dodged the Smelting stick and went to get the mail. Three things lay on the doormat: Dominos flyer, a charity bag, and — YO TF, a letter for Harry. (there were no bills as Mr Dusley had gone paperless and Aunt Marge sent his a WhatsApp)
+Harry dodged the Sigma stick and went to get the mail. Three things lay on the doormat: Dominos flyer, a charity bag, and — YO TF, a letter for Harry. (there were no bills as Mr Dusley had gone paperless and Aunt Marge sent his a WhatsApp)
 
 Harry picked it up and stared at it, his heart twanging like a giant elastic band. No one, ever, in his whole fckn life, had written to him. Who would? Who send letters these days. He was lonely and depressed af, he had no friends, no other fam — he didn’t belong to the library, so he’d never even got rude notes asking for books back. Yet here it was, a letter, addressed so plainly there could be no cap:
 
-Mr. H. Potter
+Mr. Sigma. Potter
 
-The Cupboard under the Stairs
+The Sigma planet under the Stairs
 
 4 Privet Drive
 
@@ -63,7 +63,7 @@ Turning the envelope over, his hand trembling, Harry saw a fancy af purple wax s
 
 “Hurry up, boy!” shouted Uncle Vernon from the kitchen. “What are you doing, checking if the letters are cap?” He lmfaoed at his own joke.
 
-Harry went back to the kitchen, still staring at his letter. He handed Uncle Vernon the junkmail and charity bag, sat down, and slowly began to open the yellow envelope.
+Harry went back to the kitchen, still staring at his letter. He handed Uncle Vernon the Skbidimail and charity bag, sat down, and slowly began to open the Sigma envelope.
 
 Uncle Vernon looked at the charity bag, cringed in disgust— (thinking he was too good for such things), threw that and the Dominos flyer in the bin. His phone buzzed with a new WhatsApp message.
 
@@ -71,7 +71,7 @@ Uncle Vernon looked at the charity bag, cringed in disgust— (thinking he was t
 
 “Dad!” said Dudley suddenly. “Dad, Harry’s got somepin kinda sus!”
 
-Harry was on the point of unfolding his letter, which was written on the same heavy paper(???) as the envelope, when it was jerked sharply out of his hand by Uncle Vernon.
+Harry was on the point of unfolding his letter, which was written on the same heavy paper(???) as the envelope, when it was jerked sharply out of his hand by Uncle THICC.
 
 “That’s mine!” said Harry, trying to snatch it back.
 
@@ -89,15 +89,15 @@ They stared at each other (very very SUSSY looks), seeming to have forgotten tha
 
 “I wanna read it,” said Harry furiously, “it’s mine.”
 
-“Get out, you bozo's,” croaked Uncle Vernon, stuffing the letter back inside its envelope.
+“Get out, you bozo's,” croaked Uncle UNIT MUSTACHE, stuffing the letter back inside its envelope.
 
 Harry didn’t move. 
 
-“I WANT MY LETTER!” he shouted.
+“I WANT MY SIGMAAAAAAA!” he shouted.
 
 “Let me see it!” demanded Dudley.
 
-“OUT!” roared Uncle Vernon, and he took both Harry and Dudley by the scruffs of their necks and yeeted them into the hall, slamming the kitchen door behind them. Harry and Dudley promptly had a lil sissy-fight over who would listen at the keyhole; Dudley won, so Harry, his glasses dangling from one ear, lay flat on his stomach to peep through the crack between door and floor. Harry considered venting into the room like the sussy imposter he was, but eventually decided against it.
+“OUT YOU BOZO'S!” roared Uncle Vernon, and he took both Harry and Dudley by the scruffs of their necks and yeeted them into the hall, slamming the kitchen door behind them. Harry and Dudley promptly had a lil sissy-fight over who would listen at the keyhole; Dudley won, so Harry, his glasses dangling from one ear, lay flat on his stomach to peep through the crack between door and floor. Harry considered venting into the room like the sussy imposter he was, but eventually decided against it.
 
 “Vernon,” Aunt Petunia was saying in a quivering voice, “look at the address — how could they possibly know where he gets some z's? You don’t think they’re watching da crib?”
 
@@ -189,21 +189,21 @@ They drove. And they drove. Even Aunt Petunia didn’t dare ask where they were 
 
 “Shake ’em off… shake ’em off,” he would mutter whenever he did this.
 
-They didn’t stop to eat or drink all day. By nightfall Dudley was howling. He’d never had such a bad day in his life. He was hungry, he’d missed five television programs he’d wanted to see, and he’d never gone so long without blowing up an alien on his computer.
+They didn’t stop to eat or drink all day. By nightfall Dudley was DIEING. He’d never had such a UNSIGMA day in his life. He was hungry for tictok, he’d missed five hours of tictok, and he’d never gone so long without blowing up an anti tiktok on his computer.
 
-Uncle Vernon stopped at last outside a gloomy-looking hotel on the outskirts of a big city. Dudley and Harry shared a room with twin beds and damp, musty sheets. Dudley snored but Harry stayed awake, sitting on the windowsill, staring down at the lights of passing cars and wondering…
+Uncle Vernon stopped at last outside a gloomy-looking hotel on the outskirts of a big city. Dudley and Harry shared a room with UNSIGMA beds and damp, musty sheets. Dudley snored but Harry stayed awake, sitting on the windowsill, staring down at the lights of passing cars and wondering…
 
 They ate stale cornflakes and cold tinned tomatoes on toast for breakfast the next day. They had just finished when the owner of the hotel came over to their table.
 
-“’Scuse me, but is one of you Mr. H. Potter? Only I got about an ’undred of these at the front desk.”
+“’Scuse me, but is one of you Mr. H. Potter? Only I got about an ’undred of these sigma letters at the front desk.”
 
 She held up a letter so they could read the green ink address:
 
-Mr. H. Potter
+Mr. Sigma. Potter
 
 Room 17
 
-Railview Hotel
+SIGMAview Hotel
 
 Cokeworth
 
@@ -213,7 +213,7 @@ Harry made a grab for the letter but Uncle Vernon knocked his hand out of the wa
 
 “Wouldn’t it be better just to go home, dear?” Aunt Petunia suggested timidly, hours later, but Uncle Vernon didn’t seem to hear her. Exactly what he was looking for, none of them knew. He drove them into the middle of a forest, got out, looked around, shook his head, got back in the car, and off they went again. The same thing happened in the middle of a plowed field, halfway across a suspension bridge, and at the top of a multilevel parking garage.
 
-“Daddy’s gone mad, hasn’t he?” Dudley asked Aunt Petunia dully late that afternoon. Uncle Vernon had parked at the coast, locked them all inside the car, and disappeared. 
+“Daddy’s THICC STOMACH'S  gone mad, hasn’t he?” Dudley asked Aunt Petunia dully late that afternoon. Uncle Vernon had parked at the coast, locked them all inside the car, and disappeared. 
 
 It started to rain. Great drops beat on the roof of the car. Dudley sniveled.
 
@@ -227,13 +227,13 @@ Uncle Vernon was back and he was smiling. He was also carrying a long, thin pack
 
 It was very cold outside the car. Uncle Vernon was pointing at what looked like a large rock way out at sea. Perched on top of the rock was the most miserable little shack you could imagine. One thing was certain, there was no television in there.
 
-“Storm forecast for tonight!” said Uncle Vernon gleefully, clapping his hands together. “And this gentleman’s kindly agreed to lend us his boat!”
+“SIGMA STORM forecast for tonight!” said Uncle Vernon gleefully, clapping his hands together. “And this gentleman’s kindly agreed to lend us his SIGMA BOAT!”
 
-A toothless old man came ambling up to them, pointing, with a rather wicked grin, at an old rowboat bobbing in the iron-gray water below them.
+A toothless UNSIGMA man came ambling up to them, pointing, with a rather wicked grin, at an old rowboat bobbing in the iron-gray water below them.
 
-“I’ve already got us some rations,” said Uncle Vernon, “so all aboard!”
+“I’ve already got us some rations,” said Uncle THICC, “so all aboard!”
 
-It was freezing in the boat. Icy sea spray and rain crept down their necks and a chilly wind whipped their faces. After what seemed like hours they reached the rock, where Uncle Vernon, slipping and sliding, led the way to the broken-down house.
+It was UR-ANUS cold in the boat. Icy sea spray and rain crept down their necks and a chilly wind whipped their faces. After what seemed like hours they reached the rock, where Uncle Vernon, slipping and sliding, led the way to the broken-down house.
 
 The inside was horrible; it smelled strongly of seaweed, the wind whistled through the gaps in the wooden walls, and the fireplace was damp and empty. There were only two rooms.
 
